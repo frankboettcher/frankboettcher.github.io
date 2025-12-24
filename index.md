@@ -1,2 +1,2 @@
-## Frank Böttcher IT-Service
+## Frank Böttcher
 
